@@ -1,2 +1,0 @@
-# OnlineShopSyromyatnikov
-koyo
